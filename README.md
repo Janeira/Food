@@ -30,6 +30,7 @@
 [ครัวซองต์ ทำแบบนี้ ง่ายกว่าเยอะ](https://www.youtube.com/watch?v=MzsFKWSSfns)<br>
 [ขนมโบราณ!! ไม่ใส่น้ำตาล แต่หวานมาก!! ขนมกล้วย](https://www.youtube.com/watch?v=x5AOLd27Pvc)<br>
 [ขนมไข่ สูตร2 นุ่มข้ามวัน](https://www.youtube.com/watch?v=FWDCJfDCiXM)<br>
+[ทำทาร์ตไข่ ด้วยหม้อทอดไร้น้ำมัน](https://www.youtube.com/watch?v=lBgDoXgCwyk)<br>
 [สูตรแป้งเอแคลร์Choux Cream](https://www.youtube.com/watch?v=pTSEKQyXe8s)<br>
 [น้ำเต้าหู้](https://www.youtube.com/watch?v=1IYb_zkknLE)<br>
 [ไข่ครอบ](https://www.youtube.com/watch?v=uXNRXsmKEA0)<br>
